@@ -1,5 +1,5 @@
 # Olá, turma do 1ºC! 
-## caderno virtual Paulo ferreira. 
+## caderno virtual De Paulo ferreira. 
 
 ![img](https://blog.acelerato.com/wp-content/uploads/2020/08/5-beneficios-da-gesta%CC%83o-de-projetos-para-a-sua-empresa-1200x640.png)
 
