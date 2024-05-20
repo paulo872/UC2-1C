@@ -14,4 +14,4 @@ Atividade 1: Trello
 - [Paulo Ferreira](https://trello.com/invite/b/jvf2Fp4B/ATTI840e183a8e0987a8c004042007dca564B6AC2EF6/meu-quadro-do-trello)
 - [paulo ferreira,nicole,guilherme,alisson](https://trello.com/invite/b/8zA4Q3nY/ATTIcf7d1da5b684aa56d2d56f2a72ce6d617E4089BC/canva)
 - [paulo ferreira,christian machado, caio henrique,henrique maciel](https://trello.com/invite/b/tzJqQv6c/ATTIa0f860085590cb1dd7337f55bec6545c8AA7AFD1/gerenciador-de-tarefas)
-
+- [paulo ferrera ](https://miro.com/app/board/uXjVKFAUbhg=/?share_link_id=19231428630)
