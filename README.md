@@ -15,3 +15,4 @@ Atividade 1: Trello
 - [paulo ferreira,nicole,guilherme,alisson](https://trello.com/invite/b/8zA4Q3nY/ATTIcf7d1da5b684aa56d2d56f2a72ce6d617E4089BC/canva)
 - [paulo ferreira,christian machado, caio henrique,henrique maciel](https://trello.com/invite/b/tzJqQv6c/ATTIa0f860085590cb1dd7337f55bec6545c8AA7AFD1/gerenciador-de-tarefas)
 - [paulo ferrera ](https://miro.com/app/board/uXjVKFAUbhg=/?share_link_id=19231428630)
+- [emprego dos sonhos](https://docs.google.com/document/d/13cMhXJTf5Vjik6LpTv9MbE_emkZSWly02kmugQAkxDE/edit?usp=sharing) 
